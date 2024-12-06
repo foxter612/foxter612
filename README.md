@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning c and html
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me discord id: Itz_me_mahadi
+- 📫 How to reach me discord id: no_body_u_sould_care_about
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im a middle schooler
 
